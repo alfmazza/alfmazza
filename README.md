@@ -7,7 +7,7 @@ Hola! Me llamo Alfredo y vivo en Villa Crespo, Buenos Aires (y por supuesto hinc
 No dudes en contactarme!
 
 - Mail: [alfredolmazza@gmail.com](mailto:alfredolmazza@gmail.com)
-- LinkedIn: [Alfredo](https://www.linkedin.com/in/alfredolmazza/)
+- LinkedIn: [Alfredo Mazza](https://www.linkedin.com/in/alfredolmazza/)
 
 
    <p align="left">
